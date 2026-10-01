@@ -75,4 +75,4 @@ Open to entry-level opportunities and relocation across India.
 
 ## 🔗 Connect
 
-- LinkedIn: [Kaushtav Borkataky](www.linkedin.com/in/kaushtav-borkataky-56431a24b)
+- LinkedIn: www.linkedin.com/in/kaushtav-borkataky-56431a24b
